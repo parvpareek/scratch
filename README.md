@@ -4,4 +4,4 @@ Khujli
 
 Discord link-
 
-https://discord.gg/NnBUv3
+https://discord.gg/ckvwH4x
